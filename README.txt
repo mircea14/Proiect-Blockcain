@@ -1,4 +1,4 @@
 Radu Mircea Cristian Draghici 
 Vlad Mihai Chirculete
-Oana Radu
+Oana Daniela Radu
 Gabriela Virlan
